@@ -1,0 +1,19 @@
+site_name: Pro Gear Buyer's Guide
+site_description: Expert reviews and recommendations for device accessories.
+site_url: https://Chopin8810.github.io/gear-guide/
+
+theme:
+  name: material
+  language: en
+  features:
+    - navigation.instant
+    - navigation.tracking
+  palette:
+    primary: black
+    accent: deep orange
+
+plugins:
+  - search
+
+markdown_extensions:
+  - meta
