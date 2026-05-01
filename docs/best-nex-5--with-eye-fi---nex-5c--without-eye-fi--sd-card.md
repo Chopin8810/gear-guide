@@ -5,4 +5,4 @@ title: "Best SD Card for NEX-5 (with Eye-Fi), NEX-5C (without Eye-Fi) in 2026"
 
 Looking for the top SD Card for your NEX-5 (with Eye-Fi), NEX-5C (without Eye-Fi)? Check current prices on Amazon.
 
-👉 [Check Price](https://www.amazon.com/s?k=NEX-5+%28with+Eye-Fi%29%2C+NEX-5C+%28without+Eye-Fi%29+SD+Card&tag=your-tag-20)
+👉 [Check Price](https://www.amazon.com/s?k=NEX-5+%28with+Eye-Fi%29%2C+NEX-5C+%28without+Eye-Fi%29+SD+Card&tag=gearguide0c85-20)

@@ -5,4 +5,4 @@ title: "Best Extra Battery for ILCE-9M2 in 2026"
 
 Looking for the top Extra Battery for your ILCE-9M2? Check current prices on Amazon.
 
-👉 [Check Price](https://www.amazon.com/s?k=ILCE-9M2+Extra+Battery&tag=your-tag-20)
+👉 [Check Price](https://www.amazon.com/s?k=ILCE-9M2+Extra+Battery&tag=gearguide0c85-20)

@@ -5,4 +5,4 @@ title: "Best Screen Protector for NEX-3 (with Eye-Fi), NEX-3C (without Eye-Fi) i
 
 Looking for the top Screen Protector for your NEX-3 (with Eye-Fi), NEX-3C (without Eye-Fi)? Check current prices on Amazon.
 
-👉 [Check Price](https://www.amazon.com/s?k=NEX-3+%28with+Eye-Fi%29%2C+NEX-3C+%28without+Eye-Fi%29+Screen+Protector&tag=your-tag-20)
+👉 [Check Price](https://www.amazon.com/s?k=NEX-3+%28with+Eye-Fi%29%2C+NEX-3C+%28without+Eye-Fi%29+Screen+Protector&tag=gearguide0c85-20)

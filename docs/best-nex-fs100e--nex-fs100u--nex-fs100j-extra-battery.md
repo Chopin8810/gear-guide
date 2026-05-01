@@ -5,4 +5,4 @@ title: "Best Extra Battery for NEX-FS100E, NEX-FS100U, NEX-FS100J in 2026"
 
 Looking for the top Extra Battery for your NEX-FS100E, NEX-FS100U, NEX-FS100J? Check current prices on Amazon.
 
-👉 [Check Price](https://www.amazon.com/s?k=NEX-FS100E%2C+NEX-FS100U%2C+NEX-FS100J+Extra+Battery&tag=your-tag-20)
+👉 [Check Price](https://www.amazon.com/s?k=NEX-FS100E%2C+NEX-FS100U%2C+NEX-FS100J+Extra+Battery&tag=gearguide0c85-20)

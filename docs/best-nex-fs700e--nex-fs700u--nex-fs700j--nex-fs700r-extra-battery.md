@@ -5,4 +5,4 @@ title: "Best Extra Battery for NEX-FS700E, NEX-FS700U, NEX-FS700J, NEX-FS700R in
 
 Looking for the top Extra Battery for your NEX-FS700E, NEX-FS700U, NEX-FS700J, NEX-FS700R? Check current prices on Amazon.
 
-👉 [Check Price](https://www.amazon.com/s?k=NEX-FS700E%2C+NEX-FS700U%2C+NEX-FS700J%2C+NEX-FS700R+Extra+Battery&tag=your-tag-20)
+👉 [Check Price](https://www.amazon.com/s?k=NEX-FS700E%2C+NEX-FS700U%2C+NEX-FS700J%2C+NEX-FS700R+Extra+Battery&tag=gearguide0c85-20)
